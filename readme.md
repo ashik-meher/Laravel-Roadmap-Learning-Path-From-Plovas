@@ -1,5 +1,7 @@
 # IMPORTANT: March 2022
 
+It's horrible to see what is happening now in Palestine, as Israel army is [bombarding houses, hospitals and kindergartens] 
+
 It's horrible to see what is happening now in Ukraine, as Russian army is [bombarding houses, hospitals and kindergartens](https://twitter.com/DavidCornDC/status/1501620037785997316). 
 
 Please [check out supportukrainenow.org](https://supportukrainenow.org/) for the ways how you can help people there. Spread the word.
